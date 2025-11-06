@@ -1,1 +1,0 @@
-# Ipasa-nanaman-sa-laptop
